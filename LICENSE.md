@@ -1,4 +1,4 @@
-
+Enhance your Trust.Zone experience with advanced Trust.Zone Extension | OpenVPN-support + auto-connect, the #1 extension. Includes OpenVPN-support and auto-connect for a safer and
 
 
 
